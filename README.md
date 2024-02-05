@@ -26,4 +26,3 @@ BEFORE YOU INTERACT:
 I HAVE NO DNI. JUST DON'T BE WEIRD, I'LL HIDE YOU IF I DON'T LIKE YOU.
 
 
-![image](https://github.com/tomodachiis/tomodachiis/assets/159076662/7496fa45-32de-4e38-86b4-3427e107ba53)
